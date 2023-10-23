@@ -1,2 +1,0 @@
-# For-My-Palanglangg
-ILOVEEYOUU
